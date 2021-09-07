@@ -1,0 +1,1 @@
+negentropic temporal process
