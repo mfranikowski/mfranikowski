@@ -1,1 +1,1 @@
-negentropic temporal process
+negentropic temporary process
